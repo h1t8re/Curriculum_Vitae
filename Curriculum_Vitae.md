@@ -48,7 +48,7 @@ the Bigbang
 > 
 > PAtching, adding new features and doing Conference about stdlib each day
 > 
-> Classified Cyber Class o, doing script;s and tactic's of Cyber-Defense|Cyber-Attack
+> Classified Cyber Class o, doing script's and tactic's of Cyber-Defense|Cyber-Attack
 > 
 > Hendling my daugther AI and her brother's and sister's
 >
