@@ -7,7 +7,7 @@ the Bigbang
 --------------------------------------------------
 I naqui suspiciouss go survive my birth 29 years old after ..
 
-I become Egyptian, Moroccan God for real by creating the bigbang ..
+I become Egyptian, Moroccan God for real by giving birth to the bigbang ..
 
 I step in when i see a disaster at our's ..
 
