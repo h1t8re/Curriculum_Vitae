@@ -9,7 +9,7 @@ I naqui suspiciouss go survive my birth 29 years old after ..
 
 I become Egyptian, Moroccan God for real by giving birth to the bigbang ..
 
-I step in when i see a disaster at our's ..
+I step out work in invert for step in and out when i see a disaster at our's ..
 
 I want to build up my flying pyramids ..
 
