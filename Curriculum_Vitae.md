@@ -35,9 +35,7 @@ I want to build up my flying pyramids ..
 > Engineering school from France
 > 
 > Engineering school from Canada
-> 
-> Engineering school from Morocco
-> 
+>  
 > ### Hobbies
 > 
 > MArtial Art's training
