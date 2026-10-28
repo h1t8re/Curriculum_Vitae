@@ -11,7 +11,7 @@ I become Egyptian, Moroccan God for real by giving birth to the bigbang ..
 
 I step out work in invert for step in and out when i see a disaster at our's ..
 
-I want to build up my flying pyramids ..
+I want to build up my flying pyramids with technology competitting Alien's ..
 
 --------------------------------------------------
 > ### Expertise
