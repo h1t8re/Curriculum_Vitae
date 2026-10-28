@@ -68,6 +68,6 @@ I want to build up my flying pyramids ..
 > 
 > Creator of the bigbang
 >
-> Creator of the find "Ac" work invert for "Ac" and "Ad"
+> Creator of the find "Ac" work invert for "Ac" and "Ald"
 >
 > Creator of strcmp from the stdlib of C
