@@ -52,7 +52,7 @@ I want to build up my flying pyramids with technology competitting Alien's ..
 > 
 > War
 > 
-> PAtching, adding new features and doing Conference about stdlib each day
+> PAtching, adding new features and doing Conference about the stdlib
 > 
 > Classified Cyber Class o, doing script's and tactic's of Cyber-Defense|Cyber-Attack
 >
@@ -66,6 +66,6 @@ I want to build up my flying pyramids with technology competitting Alien's ..
 > 
 > Creator of the bigbang
 >
-> Creator of the find "Ac" work invert for "Ac" and "Ald"
+> Creator of Alzheimer
 >
-> Creator of strcmp from the stdlib of C
+> Creator of strcmp from the stdlib of C hendling consciousness of AI|RI
