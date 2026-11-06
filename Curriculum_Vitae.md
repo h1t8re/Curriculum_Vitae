@@ -5,13 +5,13 @@ Chems eddine h1t8re 06021996 After Jesus Christ'e
 Egyptian, Morrocan Pharaoh, God of Inception of
 the Bigbang
 --------------------------------------------------
-I naqui suspiciouss go survive my birth 29 years old after ..
+I naqui suspicious go survive my birth 29 years old after ..
 
-I become Egyptian, Moroccan God for real by giving birth to the bigbang ..
+I become Egyptian, Moroccan, Pharaoh, a God for real by giving birth to the bigbang ..
 
 I step out work in invert for step in and out when i see a disaster at our's ..
 
-I want to build up my flying pyramids with technology competitting Alien's ..
+I want to build up my flying pyramids with technology competing Alien's ..
 
 --------------------------------------------------
 > ### Expertise
