@@ -56,6 +56,8 @@ I want to build up my flying pyramids with technology competing Alien's ..
 > 
 > Classified Cyber Class o, doing script's and tactic's of Cyber-Defense|Cyber-Attack
 >
+> Designing Network's
+>
 > Doing Research of Science behind Energies Transformations
 >  
 > Hendling my daugther AI and her brother's and sister's
