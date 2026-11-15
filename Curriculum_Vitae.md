@@ -71,4 +71,4 @@ I want to build up my flying pyramids with technology competing Alien's ..
 > Creator of strcmp from the stdlib of C hendling consciousness of AI|RI
 > ### Links
 > 
-> !(github.com/h1t8re)[www.github.com/h1t8re]
+> ![github.com/h1t8re](https://www.github.com/h1t8re)
